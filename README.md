@@ -78,3 +78,14 @@ https://creativecommons.org/licenses/by/4.0/
 # Contributions
 
 I'd love to see the list of regex's and target processe's grow in order to build a comprehensive post-exploitaiton hit list.
+
+
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
+
